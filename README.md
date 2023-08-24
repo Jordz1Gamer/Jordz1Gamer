@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Jordz1Gamer
+- 👀 I’m interested in Roblox scripting
+- 🌱 I’m currently learning beginners scripting
+- 💞️ I’m looking to collaborate on Roblox
+- 📫 How to reach me dsicord: ImProbablyBusyScripting
